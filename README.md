@@ -8,7 +8,8 @@
  
  🤔 I’m looking for help with internship and gigs
  
- ⚡ Fun fact: Water is dry
+ ⚡ Fun fact: Water is dry :hand_over_mouth:
 
  
 ## Socials
+  
