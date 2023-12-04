@@ -6,7 +6,7 @@
  
  👯 I’m looking to collaborate on challenging projects
  
- 🤔 I’m looking for help with internships and gigs
+ 🤔 I’m open to remote, internship and full-time opportunities :computer:
  
  ⚡ Fun fact: Water is dry :hand_over_mouth:
 
